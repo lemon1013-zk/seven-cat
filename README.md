@@ -1,4 +1,4 @@
-# 📚 七猫小说下载器 | Seven-Cat Novel Downloader QQ群：1050781298
+# 📚 七猫小说下载器 | Seven-Cat Novel Downloader QQ群：656095212
 
 <div align="center">
 
